@@ -1,2 +1,2 @@
-abang rua gagal nikah tahun 2017
+abang rua nikah tahun 2018 dengan artis
 Aris nikah aprill kata Tiwi biar dia nda jomblo lagi

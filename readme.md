@@ -1,2 +1,2 @@
-abang rua gagal nikah tahun 2017
-Aris nikah aprill kata Tiwi biar dia nda jomblo lagi
+abang rua nikah tahun 2017
+Aris nikah aprill kata biar dia nda jomblo lagi
